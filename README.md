@@ -1,0 +1,1 @@
+hidup lebih berarti
